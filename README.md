@@ -1,1 +1,0 @@
-# dinofauro-irrefut-vel
